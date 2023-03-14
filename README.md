@@ -7,4 +7,4 @@
 - 💬 Ask me about ...cartoon
 - 📫 How to reach me: ...Jacquelineopar2503@gmail.com
 - 😄 Pronouns: ...She/Her
-- ⚡ Fun fact: ... lwatching animation
+- ⚡ Fun fact: ... I love watching animation
